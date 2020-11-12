@@ -4,4 +4,3 @@
 
 Ricardo Blanco es
 un genio!
-
